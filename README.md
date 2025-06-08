@@ -1,0 +1,1 @@
+# affinity-offline-suite-complete-version
